@@ -22,4 +22,4 @@ Sou estudante de Ciência da Computação, amo programar e tenho interesse em **
 ### 📫 Como me encontrar
 
 - 📧 Email: kiki.henrique@icloud.com  
-- 🔗 LinkedIn: [linkedin.com/in/henrique-guimarães-131324359](https://www.linkedin.com/in/henrique-guimar%C3%A3es-131324359/)
+- 🔗 LinkedIn: [linkedin.com/in/henriquewbguimarães](https://www.linkedin.com/in/henriquewbguimarães)
